@@ -1,4 +1,4 @@
-# 
+# updated bot sniper NFT ferramentas é o melhor bot sniper NFT ferramentas com transações proxy e transações em pacote. Seguro, confiável e otimizado para estratégias de sniper,
 
 
 
